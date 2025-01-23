@@ -1,2 +1,2 @@
 # CV
-Currículon VITAE Marcos Luna 2025
+Currículum VITAE Marcos Luna 2025
